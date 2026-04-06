@@ -10,7 +10,7 @@ MiguelGarciaMartinezz
 
 IgnacioGonzalez2
 
-jose-vazquez
+Jose Vazquez
 
 SeimosAF
 
